@@ -10,3 +10,5 @@ https://post.smzdm.com/p/adwnwqwk/
 https://cloud.189.cn/t/bYZvq2qQnui2
 
 https://www.openos.org/
+
+http://www.asussmart.com/smart/1150.html
